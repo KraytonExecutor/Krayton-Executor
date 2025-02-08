@@ -15,6 +15,6 @@ Enjoy a clean, smooth experience. 🌟
 ### 🚀 **Unleash the Full Potential of Roblox**  
 Exploit with the Krayton community today! 🏆
 
-🎉 **Krayton is back and better and stronger than ever!**🎉 
+🎉 **Krayton is back and better and stronger than ever!** 🎉 
 **✨️JOINS US TODAY!✨️**
 **OFFICIAL DISCORD SERVER📌** **https://discord.gg/BYyThZPRCt**

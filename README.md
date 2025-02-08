@@ -16,5 +16,5 @@ Enjoy a clean, smooth experience. 🌟
 Exploit with the Krayton community today! 🏆
 
 🎉 **Krayton is back and better and stronger than ever!**🎉 
-**JOINS US TODAY**
-**DISCORD SERVER** https://discord.gg/BYyThZPRCt
+**✨️JOINS US TODAY!✨️**
+**DISCORD SERVER** **https://discord.gg/BYyThZPRCt**
